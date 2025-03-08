@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @isabellawtu09
+- 👋 Hi, I’m Joanna
 - ⚡ Fun fact: I like to crochet !
 
 <!---
